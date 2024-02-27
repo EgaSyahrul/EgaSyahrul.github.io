@@ -1,1 +1,0 @@
-# EgaSyahrul.github.io
